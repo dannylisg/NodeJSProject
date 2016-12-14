@@ -1,0 +1,1 @@
+please read blow content before you use the application.
